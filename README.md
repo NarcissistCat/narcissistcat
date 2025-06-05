@@ -4,7 +4,6 @@
 
 # 💫About Me :
 A vida e igual ao vento, comi o cu de quem ta lendo
-💻Cybersecurity Teacher
 💕Everyday learning a lot of new API's an technologies
 ✨Game Developer as hobbie
 🙌GTA:World ES my beloved
